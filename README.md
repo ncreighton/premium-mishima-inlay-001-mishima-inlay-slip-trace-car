@@ -1,0 +1,2 @@
+# premium-mishima-inlay-001-mishima-inlay-slip-trace-car
+You've mastered basic pottery techniques, but your mishima work lacks organization—scattered notes, inconsistent slip recipes, and no system to track carving patterns that actually work. The Mishima Inlay &amp; Slip Trace Carve Craft Lab eliminates that chaos and turns your studio into a precision operation.  This isn't just a template; it's a complete
